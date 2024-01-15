@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Wagner Dias @wagnerdiasss
+- 👀 I’m interested in soccer, music and games (free fire 🔫)
+- 🌱 I’m currently learning to code (HTML, CSS, JavaScript)
+- 📫 reach me through email wdias7079@gmail.com
+- 😄 Pronouns: he/him
